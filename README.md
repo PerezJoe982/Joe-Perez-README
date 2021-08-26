@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PerezJoe982
+- 👀 I’m interested in Videogames and Movies
+- 🌱 I’m currently learning CIS with programming
+- 💞️ I’m looking to collaborate on projects and programing techniques
+- 📫 How to reach me @jmperez5@student.uiwtx.edu
